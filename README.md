@@ -42,6 +42,9 @@
 
 ‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎ㅤ‎‎‎ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎ㅤ‎‎‎‎‎ㅤ‎‎ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎ㅤㅤㅤ‎‎‎‎ㅤ‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=FD8A6B&bar_color_cover=false)
 
+<p align="center"> <img width="768" height="200" alt="image" src="https://github.com/user-attachments/assets/311299b0-efbb-487a-bd24-f619f8642b95" /></p>
+
+
 
 
 
