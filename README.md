@@ -1,7 +1,7 @@
 <p align="center"> <img width="768" height="51" alt="image" src="https://github.com/user-attachments/assets/99d7860c-0ed1-4bbc-b5bd-01b058a68d78" /></p>
 
 <p align="center"> <img width="395" height="527" alt="image" src="https://github.com/user-attachments/assets/631ecaf8-a59b-44d5-a258-207497c1e2c2" /></p>
-<p align="center"> $\color{#FD8A6B}{\textsf{ this is my twin guys check his github!! @DarkIord⠀(drawing by oomf)⠀}}$
+
 
 <p align="center">  <img width="768" height="51" alt="image" src="https://github.com/user-attachments/assets/c8e27874-aaf8-411b-8b20-bf4cd38694f9" /></p>
 
